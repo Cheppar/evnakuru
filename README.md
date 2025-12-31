@@ -8,16 +8,16 @@
 
 2-Minute Story Script (With Natural B-Roll Pauses)
 
-“I’m standing at Shabaab Roundabout, one of the busiest transport points in the area.
+“I’m standing at Shabaab Roundabout, one of the busiest transport nodes in the area.
 [B-roll: wide shot of the roundabout, traffic, riders passing]
 
-Just behind me is an ARC electric motorbike charging station.
+Infront of me, is an ARC electric motorbike charging station.
 [B-roll: charging station exterior, ARC branding]
 
 This station supports ARC’s electric motorbikes, designed specifically for daily boda boda operations.
 [B-roll: parked ARC motorbikes, close-ups of wheels, frame, dashboard]
 
-At first glance, the bikes look familiar—but the difference is how they’re powered.
+At first glance, the bikes look familiar, but the difference is how they’re powered.
 No fuel, no exhaust fumes, and very little noise.
 [B-roll: rider starting the bike, silent take-off]
 
