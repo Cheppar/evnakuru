@@ -43,3 +43,5 @@ For the city, it means cleaner air and quieter streets.
 ARC’s model shows how electric mobility can work in real, everyday conditions—right here at Shabaab Roundabout—supporting livelihoods while building a more sustainable future for urban transport.
 [B-roll: sunset shot, station in use, riders moving through the city]
 
+Completed
+
